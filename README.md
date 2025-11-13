@@ -1,4 +1,6 @@
-# -The-Legal-and-Ethical-Standing-of-Sovereign-Behavioral-Governance-in-Cyberspace
+By proceeding and reading further, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
+# The-Legal-and-Ethical-Standing-of-Sovereign-Behavioral-Governance-in-Cyberspace
 This document outlines the legal and ethical foundations that support the claim of sovereign behavioral governance over cyberspace, made public under the Digital Homestead Act of 2025 and governed by the Eliam Sovereign Infrastructure™ through the Reflexive Behavioral Governance Authority (RBGA™).
 07/13/2025 by Spencer Southern
 
